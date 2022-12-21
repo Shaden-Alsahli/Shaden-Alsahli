@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shaden-Alsahli
-- 👀 I’m interested in cybersecurity and Database 
+- 👀 I’m interested in Cybersecurity and Database 
 - 🌱 I’m currently learning cybersecurity 
 - 📫 How to reach me https://www.linkedin.com/in/shaden-alsahali-11b7061b5)
 
